@@ -1,1 +1,2 @@
-# Benefits-of-tea
+# Benefits Of Tea
+Studies show that with every cup of tea you drink daily, you can lower your blood pressure, the risk of major cardiovascular events (such as heart attack and stroke) and the threat of death from heart disease. Coffee drinkers can raise a mug to fiber, microbiome health and lowering risk for cancer and diabetes. But [Benefits of tea](https://redmoontea.etsy.com) drinkers, do not despair. Tea is undoubtedly good for your blood pressure, cholesterol, stress levels, mental health and productivity. And both drinks are winners when it comes to heart health and longevity. 
